@@ -49,8 +49,8 @@ Sou um entusiasta da programação em constante aprendizado. Curioso por naturez
 Se você tiver interesse em colaborar em projetos simples ou quiser trocar ideias sobre estudos, tecnologias ou carreira, será um prazer conectar!
 
 📫 **Contato**  
-[LinkedIn](https://www.linkedin.com) *(adicione seu link real aqui)*  
-✉️ bmicaell@seudominio.com *(ou e-mail real se quiser adicionar)*
+[LinkedIn](https://www.linkedin.com/in/bruno-micaell-160780184/m) 
+
 
 ---
 
